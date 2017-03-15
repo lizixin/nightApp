@@ -1,3 +1,3 @@
-1我是共产主义接班人
+1djiwqjdiqjdiqjdiqowjdqowjd
 2有我党的优良传统
 3不知道什么是继承人
